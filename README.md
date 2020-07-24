@@ -1,2 +1,0 @@
-# krishnasu
-saniyan
